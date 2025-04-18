@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @glowingjellyfishgames
+- 👀 I’m interested in something.
+- 🌱 I’m currently learning something.
+- 💞️ I’m looking to collaborate on games.
+- 📫 How to reach me: glowingjellyfishgames@outlook.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: There are no fun facts!
